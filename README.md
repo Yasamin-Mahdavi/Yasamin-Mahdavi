@@ -1,4 +1,4 @@
-![work](https://github.com/user-attachments/assets/fa06fff5-71ec-425e-8442-d3f011717f3f)
+![64](https://github.com/user-attachments/assets/93334c95-9b3c-45a8-be93-9e39c054437d)
 # 📖 README
 
 ## 👩‍💻 About Me
