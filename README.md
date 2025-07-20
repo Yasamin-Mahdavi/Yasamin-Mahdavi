@@ -1,5 +1,6 @@
-![64](https://github.com/user-attachments/assets/93334c95-9b3c-45a8-be93-9e39c054437d)
 # 📖 README
+
+![work](https://github.com/user-attachments/assets/85fb87aa-d312-4677-aaea-ed6d8ab352b7)
 
 ## 👩‍💻 About Me
 
